@@ -1,6 +1,6 @@
 ## Hi there and welcome to Albatrac
 
-#More info coming soon...
+More info coming soon...
 
 <!--
 
