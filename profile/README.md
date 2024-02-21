@@ -1,4 +1,4 @@
-## Hi there and welcome to Albatrac
+## Revolutionising the world of golf 
 
 More info coming soon...
 
